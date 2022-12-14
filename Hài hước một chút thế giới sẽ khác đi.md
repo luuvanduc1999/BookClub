@@ -1,6 +1,6 @@
 # 10 Nguyên Tắc hài hước của người thành công
 
-* Hài hước không có nghĩa là đùa cợt, nó sâu sắc hơn đùa cợt rất nhiều, là một phẩm chất và năng lực, và cũng là một môn nghệ thuật.
+<i> Hài hước không có nghĩa là đùa cợt, nó sâu sắc hơn đùa cợt rất nhiều, là một phẩm chất và năng lực, và cũng là một môn nghệ thuật.</i>
 
 
 ## 1. GIỮ MỘT TÂM LÍ LÀNH MẠNH, LẠC QUAN, TÍCH CỰC
