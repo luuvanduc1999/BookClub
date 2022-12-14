@@ -7,7 +7,9 @@
 - là một trong những phương pháp để con người giảm bớt áp lực tinh thần khi đối diện với khó khăn.
 - có thể giúp con người giảm bớt tâm trạng tiêu cực, giải tỏa những đau buồn, phiền não.
 - dễ dàng nhận được sự tin tưởng và yêu mến của mọi người hơn
-“Điều khiến cho người ta bật cười, là sự khôi hài; điều khiến người ta suy nghĩ một lát mới bật cười, là sự hài hước.”
+
+
+<i>“Điều khiến cho người ta bật cười, là sự khôi hài; điều khiến người ta suy nghĩ một lát mới bật cười, là sự hài hước.”</i>
 
 ## 2. HÃY NHÌN NHẬN THẾ GIỚI TỪ GÓC ĐỘ THÚ VỊ
 thành ngữ “Tái Ông thất mã”:
