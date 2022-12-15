@@ -37,3 +37,11 @@ Mâu thuẫn sẽ dễ xóa bỏ, tăng sự thấu hiểu và thông cảm. C�
 - Dễ gây hại đến hình tượng, sự đáng tin cậy, giảm uy tín của mình trong lòng người khác
 - Đừng chỉ bới móc, nhại lại, trêu đùa tục tĩu -> "thằng hề" chứ không phải hài hước
 - Hài hước cũng cần phải chọn thời điểm thích hợp
+
+## 6. TÔN TRỌNG LÀ TIỀN ĐỀ CỦA HÀI HƯỚC
+Mục đích của hài hước là muốn làm cho mọi người cảm thấy vui vẻ, nhưng không phải là lấy người khác ra làm trò đùa
+
+## 7.NÓI CHUYỆN MỘT CÁCH UYỂN CHUYỂN, TẾ NHỊ
+Hài hước một cách tế nhị là không trjwc tiếp nói vào điều mình muốn nói, nhưng khiến tất cả hiểu được ý của mình, và còn cảm thấy vui vẻ với câu chuyện đó
+
+## 8. VÒNG VO MỘT CHÚT, HIỆU QUẢ SẼ TỐT HƠN
