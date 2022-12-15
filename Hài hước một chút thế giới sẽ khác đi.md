@@ -1,4 +1,4 @@
-# 10 Nguyên Tắc hài hước của người thành công
+# Nguyên Tắc hài hước của người thành công
 
 <i> Hài hước không có nghĩa là đùa cợt, nó sâu sắc hơn đùa cợt rất nhiều, là một phẩm chất và năng lực, và cũng là một môn nghệ thuật.</i>
 
@@ -27,7 +27,7 @@ Hài hước ở tầng sâu thì ngoài những nhân tố kể trên, còn c�
 
 - Hài hước còn bao hàm trí tuệ, qua đó nhận ra khả năng phản ứng của một người nhanh hay chậm. 
 Chỉ khi nhanh chóng nắm bắt được bản chất, rồi mới có thể dùng lời lẽ uyển chuyển để biểu đạt một thông tin.
-
+-Hài hước một cách tế nhị là không trực tiếp nói vào điều mình muốn nói, nhưng khiến tất cả hiểu được ý của mình, và còn cảm thấy vui vẻ với câu chuyện đó
 ## 4. LÙI MỘT BƯỚC ĐỂ TIẾN HAI BƯỚC
 - Trong công việc, thêm 1 phần hài hước, bớt vài phần cứng nhắc sẽ giúp giảm bớt áp lực, nâng cao nhiệt tình với công việc.
 Mâu thuẫn sẽ dễ xóa bỏ, tăng sự thấu hiểu và thông cảm. Cả giận thì sẽ dễ mất khôn
@@ -36,12 +36,4 @@ Mâu thuẫn sẽ dễ xóa bỏ, tăng sự thấu hiểu và thông cảm. C�
 - Đùa quá đà sẽ gây chuyện thị phi, không nên lạm dụng, nếu không sẽ thành lố bịch
 - Dễ gây hại đến hình tượng, sự đáng tin cậy, giảm uy tín của mình trong lòng người khác
 - Đừng chỉ bới móc, nhại lại, trêu đùa tục tĩu -> "thằng hề" chứ không phải hài hước
-- Hài hước cũng cần phải chọn thời điểm thích hợp
-
-## 6. TÔN TRỌNG LÀ TIỀN ĐỀ CỦA HÀI HƯỚC
-Mục đích của hài hước là muốn làm cho mọi người cảm thấy vui vẻ, nhưng không phải là lấy người khác ra làm trò đùa
-
-## 7.NÓI CHUYỆN MỘT CÁCH UYỂN CHUYỂN, TẾ NHỊ
-Hài hước một cách tế nhị là không trjwc tiếp nói vào điều mình muốn nói, nhưng khiến tất cả hiểu được ý của mình, và còn cảm thấy vui vẻ với câu chuyện đó
-
-## 8. VÒNG VO MỘT CHÚT, HIỆU QUẢ SẼ TỐT HƠN
+- Hài hước cũng cần phải chọn thời điểm thích hợp. Mục đích của hài hước là muốn làm cho mọi người cảm thấy vui vẻ, nhưng không phải là lấy người khác ra làm trò đùa
